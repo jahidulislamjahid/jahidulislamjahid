@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jahidulislamjahid
-- 👀 I’m interested in learning new things mostly technologya related.
+- 👀 I’m interested in learning new things mostly technology related.
 - 🌱 I’m currently learning web developing
 - 💞️ I’m looking to collaborate with anyone who can help me to learn and reach my milestone.
 - 📫 How to reach me : mail me on info.jahidulislamjahid@gmail.com
